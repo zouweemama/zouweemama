@@ -17,7 +17,7 @@
 
               , 15 ; 
 
-    ﹐⸝⸝  ﹐chinese/brazilian / china ;   ˙ . ꒷
+    ﹐⸝⸝  ﹐chinese/brazilian / I'm from china ;   ˙ . ꒷
 
  . , ₊˚       — :: he/him ; male (biologically) ; 
 
@@ -30,7 +30,7 @@
 
 ⊹ ࣪ ˖     ﹒ ⠀dislike(s) ; nothing
 
-      ୧   𐔌՞ ܸ.ˬ.ܸ՞𐦯𑁤  « , s/o , or extra !! »  ; 
+      ୧   𐔌՞ ܸ.ˬ.ܸ՞𐦯𑁤  « , sometimes im off tab , i LOVE cuddles !! !! »  ; 
 
    𖦹‧  « Top 1 »  song ; 1: https://youtu.be/POcRDQFwwmY?si=NHI8BX7SWoOo75PL !! 
 
