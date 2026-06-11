@@ -1,16 +1,37 @@
-## Hi there 👋
 
-<!--
-**zouweemama/zouweemama** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ʜᴇʟʟᴏ 
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+###  .
+
+---
+
+###  𑣲⋆
+    
+ intro !! (..◜ᴗ◝..) !!
+
+
+               ୭ ˚. ᵎᵎ  My name is Zou or Zhenyi ;
+       ıllı , .    ﾉ nicknames zouzou  ; 
+
+              , 15 ; 
+
+    ﹐⸝⸝  ﹐chinese/brazilian / china ;   ˙ . ꒷
+
+ . , ₊˚       — :: he/him ; male (biologically) ; 
+
+        ⋮ ⋆.˚ entp ;  ﹒  ◠    
+
+⠀:¨ ·.· ¨:⠀
+     `· .   ౨౿　birthday ; 21 . 12　﹒ 　︵︵
+
+             ˚. ᵎᵎ    ﹒ like(s) ; sleeping...zzZ & music 
+
+⊹ ࣪ ˖     ﹒ ⠀dislike(s) ; nothing
+
+      ୧   𐔌՞ ܸ.ˬ.ܸ՞𐦯𑁤  « , s/o , or extra !! »  ; 
+
+   𖦹‧  « Top 1 »  song ; 1: https://youtu.be/POcRDQFwwmY?si=NHI8BX7SWoOo75PL !! 
+
+Zou out !! ( ദ്ദി „˚ ᗜ^„ ) !!
