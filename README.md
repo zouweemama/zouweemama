@@ -44,7 +44,7 @@
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
-   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 15 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language ^^. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!!
+   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 17 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language ^^. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!!
 
 
 
