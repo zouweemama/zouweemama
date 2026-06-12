@@ -76,6 +76,36 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d88403cf-f76c-4a43-8ebb-9553bea1791a" />
 </details>
 
+<details>
+ 
+   <summary>$${\color{#EEEEEE} OC ▽   }$$</summary>
+   
+   $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
+
+[Character Reveal]🩺Dr. Chen🧪
+Name: Chen Hao (Chen Mosheng)
+Alias: Silver Blade (Sterling Chen)
+Occupation: Surgeon
+Gender: Male
+Species: Earth Pony (Oriental)
+Cutie Mark: Scalpel
+Interests: Folklore / Medical Literature / Fitness / Movies
+Personality: Calm and Aloof / Meticulous / High Standards
+Dislikes: Noise / Stains / Medicine
+Special Traits: Compulsive cleanliness / Always smells of disinfectant
+Backstory: Revered by his peers as "Silver Blade," he is an Oriental Earth pony surgeon with a calm, aloof, and meticulous personality. He has a deep interest in both Eastern and Western medicine, as well as his homeland's folk culture.
+
+He was raised by his mother alone. His father, a foreign trade merchant, was constantly on business trips, and never returned to visit his mother even as she lay on her deathbed. His mother passed away with the regret of never seeing her husband again, which completely froze Chen Hao's heart. He grew to hate his father's absence and coldness, decisively abandoning the family's three-generation tradition of commerce and the name his father gave him, "Chao." He renamed himself "Mosheng" and resolved to study medicine—immersing himself in Eastern and Western medical techniques with a fervor, determined to fight death and prevent his mother's tragedy from repeating itself in others.
+
+During a critical surgery at a time of extreme staff shortage, a patient's life hung in the balance. As the youngest yet most knowledgeable doctor, Chen Mosheng, who had never performed surgery before, displayed astonishing calm and decisiveness, gripping the scalpel firmly for the first time in his life. With his profound theoretical knowledge and precise technique, he successfully completed the surgery and saved the patient's life.
+
+In the very instant of the surgery's success, a cutie mark that symbolized his destiny—a simple, sharp silver scalpel—quietly manifested beside him. This long-awaited mark not only confirmed the birth of his "Silver Blade" title but also imprinted upon him the soul of a healer: to sever the chains of death with a blade that is calm, precise, and sharp.
+
+(I used a translator to write some of the sentences)
+
+   <img width="216" height="240" alt="pony-town-📚 陈浩 (Sterling Chen) 🫂✔💉-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/6cb4382b-0b71-40b8-8b7b-31d473a74b21" />
+
+
 <div align="center">
 
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/91dd94de-6670-4b33-8a54-2182d7a23e8e" />
