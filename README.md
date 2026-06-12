@@ -22,8 +22,8 @@
  <img width="61" height="33" alt="tumblr_71b1bf3d68147f1790782a0342e46ddb_7d8aa2cb_75" src="https://github.com/user-attachments/assets/411772ec-421b-4f2b-9c4b-b817f1efad6e" /> !! (..◜ᴗ◝..) !!
 
 
-               ୭ ˚. ᵎᵎ  My name is Zou or Zhenyi ;                       <img width="55" height="180" alt="3yiw6k" src="https://github.com/user-attachments/assets/e1b749b8-0d91-46e0-bef7-d7924f827812" />
-
+               ୭ ˚. ᵎᵎ  My name is Zou or Zhenyi ;                     
+  <img width="55" height="180" alt="3yiw6k" src="https://github.com/user-attachments/assets/e1b749b8-0d91-46e0-bef7-d7924f827812" />
        ıllı , .    ﾉ nicknames zouzou  ; 
 
               , 15 ;                  
