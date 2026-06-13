@@ -97,13 +97,17 @@ Backstory: Revered by his peers as "Silver Blade," he is an Oriental Earth pony 
 
 He was raised by his mother alone. His father, a foreign trade merchant, was constantly on business trips, and never returned to visit his mother even as she lay on her deathbed. His mother passed away with the regret of never seeing her husband again, which completely froze Chen Hao's heart. He grew to hate his father's absence and coldness, decisively abandoning the family's three-generation tradition of commerce and the name his father gave him, "Chao." He renamed himself "Mosheng" and resolved to study medicine—immersing himself in Eastern and Western medical techniques with a fervor, determined to fight death and prevent his mother's tragedy from repeating itself in others.
 
-During a critical surgery at a time of extreme staff shortage, a patient's life hung in the balance. As the youngest yet most knowledgeable doctor, Chen Mosheng, who had never performed surgery before, displayed astonishing calm and decisiveness, gripping the scalpel firmly for the first time in his life. With his profound theoretical knowledge and precise technique, he successfully completed the surgery and saved the patient's life.
-
 (I used a translator to write some of the sentences) -
 
-   <img width="216" height="240" alt="pony-town-📚 陈浩 (Sterling Chen) 🫂✔💉-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/6cb4382b-0b71-40b8-8b7b-31d473a74b21" />
+<img width="539" height="463" alt="image_87595747-removebg-preview" src="https://github.com/user-attachments/assets/5301d530-dd23-4feb-abad-e8d941253ac4" />
 
-   
+
+
+
+
+  <img width="216" height="240" alt="pony-town-📚 陈浩 (Sterling Chen) 🫂✔💉-trot-blinking-padded-4x (1)" src="https://github.com/user-attachments/assets/318598ba-e291-40a9-95ce-09c0ce5d338a" />
+
+
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
