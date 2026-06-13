@@ -23,7 +23,7 @@
 
 
 
-[Straw](https://zouweemama.straw.page)  /  [Guns](https://guns.lol/zou_dieyiyi))   / [Prns](https://pronouns.cc/@zouweemama)
+[Straw](https://zouweemama.straw.page)  /  [Guns](https://guns.lol/zou_dieyiyi))   / [Prns](https://en.pronouns.page/@zouweemama))
 
 
  $\color{gray}{\textbf{You only live once }}$
