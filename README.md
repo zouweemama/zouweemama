@@ -44,7 +44,7 @@
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
-   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 17 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language ^^. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!!
+   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 17 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language ^^. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!! I am currently in highschool so i mostly study ..study..study till i score. I have severe PTSD from my rough childhood. Please be nice to me im sensitive
 
 
 
@@ -99,9 +99,7 @@ He was raised by his mother alone. His father, a foreign trade merchant, was con
 
 During a critical surgery at a time of extreme staff shortage, a patient's life hung in the balance. As the youngest yet most knowledgeable doctor, Chen Mosheng, who had never performed surgery before, displayed astonishing calm and decisiveness, gripping the scalpel firmly for the first time in his life. With his profound theoretical knowledge and precise technique, he successfully completed the surgery and saved the patient's life.
 
-In the very instant of the surgery's success, a cutie mark that symbolized his destiny—a simple, sharp silver scalpel—quietly manifested beside him. This long-awaited mark not only confirmed the birth of his "Silver Blade" title but also imprinted upon him the soul of a healer: to sever the chains of death with a blade that is calm, precise, and sharp.
-
-(I used a translator to write some of the sentences)
+(I used a translator to write some of the sentences) -
 
    <img width="216" height="240" alt="pony-town-📚 陈浩 (Sterling Chen) 🫂✔💉-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/6cb4382b-0b71-40b8-8b7b-31d473a74b21" />
 
@@ -110,3 +108,6 @@ In the very instant of the surgery's success, a cutie mark that symbolized his d
 
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/91dd94de-6670-4b33-8a54-2182d7a23e8e" />
 
+
+
+              Thank you for reading.
