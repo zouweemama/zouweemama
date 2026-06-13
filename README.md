@@ -54,7 +54,7 @@
  
  <details>
 
-   <summary>$${\color{#EEEEEE} More !! ▽   }$$</summary>
+  <summary>$${\color{#EEEEEE} More !! ▽   }$$</summary>
 
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
@@ -78,7 +78,7 @@
 
 <details>
  
-   <summary>$${\color{#EEEEEE} OC ▽   }$$</summary>
+  <summary>$${\color{#EEEEEE} OC ▽   }$$</summary>
    
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
@@ -102,6 +102,20 @@ During a critical surgery at a time of extreme staff shortage, a patient's life 
 (I used a translator to write some of the sentences) -
 
    <img width="216" height="240" alt="pony-town-📚 陈浩 (Sterling Chen) 🫂✔💉-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/6cb4382b-0b71-40b8-8b7b-31d473a74b21" />
+
+   
+   $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
+
+
+
+
+
+
+  </details>
+
+
+
+
 
 
 <div align="center">
