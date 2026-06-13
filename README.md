@@ -101,7 +101,7 @@ He was raised by his mother alone. His father, a foreign trade merchant, was con
 
 <img width="539" height="463" alt="image_87595747-removebg-preview" src="https://github.com/user-attachments/assets/5301d530-dd23-4feb-abad-e8d941253ac4" />
 
-
+            Drawn by me !!
 
 
 
