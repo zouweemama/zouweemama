@@ -46,7 +46,7 @@
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
-   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 17 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language ^^. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!! I am currently in highschool so i mostly study ..study..study till i score. I have severe PTSD from my rough childhood. Please be nice to me im sensitive
+   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 15 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language most of the time i use a translator. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!! I am currently in highschool so i mostly study ;P.
 
 
 
@@ -61,7 +61,7 @@
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
-   I'm a BIG Li Nezha and Ao bing fan ( i ship them but when nezha is in his full form )!! Ofc living in a chinese household you MUST have watched chinese mythology movies XP and I mostly watch horror movies like Incantation, the exorcist.. ect... I adore giving people hugs but sometimes im clingy .. ;P. I do a lot of craft, arts and sometimes album covers for c-rappers !! I love cute looking objects with a slight of gore ^^ and I really love Junji Ito's collection.
+The biggest Kaworu Nagisa fan ^^ I like him cause he ressembles me :P 
      </details>
 
 
