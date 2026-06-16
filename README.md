@@ -121,8 +121,7 @@ He was raised by his mother alone. His father, a foreign trade merchant, was con
 
 
 
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zrunji4egigzf2nhpcn7eouunq&cover_image=true&theme=default&show_offline=false&background_color=ceecf3&interchange=false&profanity=false&hide_remaster=false&bar_color=a0bde4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <div align="center">
 
