@@ -46,7 +46,7 @@
    $\color{darkgray}{\textbf{ · · ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
-   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 15 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language most of the time i use a translator. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!! I am currently in highschool so i mostly study ;P keep in mind I'm diagnosed with have severe depression c-ptsd and I'm a sociopath so it's not the best to rant to me. 
+   My name is Zou or Zhenyi but i prefer Zou cause it's shorter <: . I am 15 yr old and i was born on the 21st December on a Winter solstice ❆. I lack vocabulary in English cause its not my main language most of the time i use a translator. I am Chinese Brazilian !! But I'm mostly more on my Chinese side. I am biologically a boy and my pronouns are he/him.. I am bisexual !!!  I speak English, Mandarin, French and I'm learning German !!! I am currently in highschool so i mostly study ;P keep in mind I'm diagnosed with severe depression c-ptsd and I'm a sociopath so it's not the best to rant to me. 
 
 
 
