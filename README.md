@@ -28,7 +28,7 @@
 [Straw](https://zouweemama.straw.page) /  [Guns](https://guns.lol/zou_dieyiyi))   / [Prns](https://en.pronouns.page/@zouweemama))
 
 
- $\color{gray}{\textbf{You only live once }}$
+ $\color{gray}{\textbf{"Don't forget… the louder you play, the better it sounds!" }}$
 
 
 
@@ -42,7 +42,7 @@
 
 
 
-The biggest Kaworu Nagisa fan ^^ I like him cause he ressembles me :P 
+
 
 
 
