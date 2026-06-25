@@ -11,7 +11,7 @@
 
 
 
-   ![](https://komarev.com/ghpvc/?username=zouweemama&color=E2E1E1&label=munchkins) 
+   ![](https://komarev.com/ghpvc/?username=zouweemama&color=6367FF&label=munchkins)
 
 
  # $\color{gray}{\textbf{✦ Welcome to my page !!  欢迎来到我的主页！}}$ 
