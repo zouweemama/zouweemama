@@ -2,7 +2,7 @@
 <div align="center">
  
  
- <img width="2000" height="200" alt="image" src="https://github.com/user-attachments/assets/c0c8f0b4-d446-4b03-b65d-9fd902973516" />
+ <img width="600" height="120" alt="IMG_9098" src="https://github.com/user-attachments/assets/97fe3af7-6c6f-4dc3-a845-a7bbefda4084" />
 
 
 
@@ -17,10 +17,11 @@
  # $\color{gray}{\textbf{✦ Welcome to my page !!  欢迎来到我的主页！}}$ 
 
  
-            this is a WIP !!
+          this is a WIP !!
   
  
-<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/49feb960-859d-4180-a90b-5d55d11f77a1" />
+<img width="100" height="75" alt="IMG_8381" src="https://github.com/user-attachments/assets/fa3eec9b-0674-4086-81b4-b4204db45511" />
+
 
 
 
@@ -36,8 +37,8 @@
 
 
 
-   <img width="400" height="40" alt="image" src="https://github.com/user-attachments/assets/63594fe8-e711-44df-a16a-cc4773778a7d" style="background-color: transparent !important"/>
 
+   <img width="480" height="5" alt="IMG_8385" src="https://github.com/user-attachments/assets/81ed626e-9cc3-4492-bd8e-7a83bdbc920f" />
 
 
 
@@ -52,6 +53,6 @@
 
 <div align="center">
 
-<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/91dd94de-6670-4b33-8a54-2182d7a23e8e" />
+
 
 
