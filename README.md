@@ -14,10 +14,10 @@
    ![](https://komarev.com/ghpvc/?username=zouweemama&color=6367FF&label=munchkins)
 
 
- # $\color{gray}{\textbf{✦ Welcome to my page !!  欢迎来到我的主页！}}$ 
+ # $\color{Baby blue}{\textbf{✦ Welcome to my page !!  欢迎来到我的主页！}}$ 
+
 
  
-          this is a WIP !!
   
  
 <img width="100" height="75" alt="IMG_8381" src="https://github.com/user-attachments/assets/fa3eec9b-0674-4086-81b4-b4204db45511" />
