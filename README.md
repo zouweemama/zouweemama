@@ -2,7 +2,7 @@
 <div align="center">
  
  
- <img width="600" height="120" alt="IMG_9098" src="https://github.com/user-attachments/assets/97fe3af7-6c6f-4dc3-a845-a7bbefda4084" />
+ <img width="735" height="489" alt="704250460484674136" src="https://github.com/user-attachments/assets/bc963fd0-6b14-436f-b0ac-673e3b83d240" />
 
 
 
@@ -11,16 +11,17 @@
 
 
 
-   ![](https://komarev.com/ghpvc/?username=zouweemama&color=6367FF&label=munchkins)
+   ![](https://komarev.com/ghpvc/?username=zouweemama&color=6367FF&label=ྀ࿔Hylians)
 
 
- # $\color{Baby blue}{\textbf{✦ Welcome to my page !!  欢迎来到我的主页！}}$ 
+ # $\color{Baby blue}{\textbf{. ݁₊ ⊹ . ݁˖ . ݁𓂃 ࣪˖ Welcome to my page ! 欢迎来到我的主页！ ࣪˖  ݁𓂃. ݁₊ ⊹ . ݁˖ . ݁  }}$ 
 
 
  
   
  
-<img width="100" height="75" alt="IMG_8381" src="https://github.com/user-attachments/assets/fa3eec9b-0674-4086-81b4-b4204db45511" />
+
+<img width="1280" height="102" alt="tumblr_862229cced4e32f2d7236b820ebb84c9_d4e774a0_1280" src="https://github.com/user-attachments/assets/8ccde730-206e-48ec-9087-98d4ceece145" />
 
 
 
@@ -29,21 +30,22 @@
 [Straw](https://zouweemama.straw.page) /  [Guns](https://guns.lol/zou_dieyiyi))   / [Prns](https://en.pronouns.page/@zouweemama))
 
 
- $\color{gray}{\textbf{"Don't forget… the louder you play, the better it sounds!" }}$
+  
 
 
 
-   $\color{white}{\textbf{//////////////////////////////////////}}$
-
-
-
-
-   <img width="480" height="5" alt="IMG_8385" src="https://github.com/user-attachments/assets/81ed626e-9cc3-4492-bd8e-7a83bdbc920f" />
+   $\color{gold}{\textbf{Well excuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuse me princess!}}$
 
 
 
 
+   <img width="500" height="295" alt="b08753d58f327fe00490bb5cfa7fcf03" src="https://github.com/user-attachments/assets/5f50caa2-f7c7-4d1c-afa7-c633dddaab24" />
 
+
+
+
+
+<img width="1280" height="102" alt="tumblr_406c4bb71d6417967a5083d7dc5e27c1_a423fb0c_1280" src="https://github.com/user-attachments/assets/a7599bfb-432e-401e-a451-b4612047608a" />
 
 
 
