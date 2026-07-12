@@ -13,12 +13,6 @@
 
    ![](https://komarev.com/ghpvc/?username=zouweemama&color=6367FF&label=ྀ࿔Hylians)
 
-
- # $\color{Baby blue}{\textbf{. ݁₊ ⊹ . ݁˖ . ݁𓂃 ࣪˖ Welcome to my page ! 欢迎来到我的主页！ ࣪˖  ݁𓂃. ݁₊ ⊹ . ݁˖ . ݁  }}$ 
-
-
- 
-  
  
 
 <img width="1280" height="102" alt="tumblr_862229cced4e32f2d7236b820ebb84c9_d4e774a0_1280" src="https://github.com/user-attachments/assets/8ccde730-206e-48ec-9087-98d4ceece145" />
@@ -39,7 +33,12 @@
 
 
 
-   <img width="500" height="295" alt="b08753d58f327fe00490bb5cfa7fcf03" src="https://github.com/user-attachments/assets/5f50caa2-f7c7-4d1c-afa7-c633dddaab24" />
+
+
+
+
+
+
 
 
 
