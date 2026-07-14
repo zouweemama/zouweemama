@@ -11,7 +11,7 @@
 
 <div align="center">
 
-[Straw.](https://zouweemama.straw.page)   [Guns.](https://guns.lol/zou_dieyiyi) [新ㅤ.](https://zouweemama.atabook.org/)
+[Straw.](https://zouweemama.straw.page)   [Guns.](https://guns.lol/zou_dieyiyi) [新ㅤ.](https://zouweemama.atabook.org/)  [carrdㅤ..](https://zouweemama.carrd.co/)
 
 
   
