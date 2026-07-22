@@ -2,9 +2,10 @@
 <div align="center">
 <img width="37" height="20" alt="IMG_3717" src="https://github.com/user-attachments/assets/93f6fd03-0b4e-45c1-8655-79653a83d8f9" />
 
-  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Stars) ໒꒱ ‧₊˚
+  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
  
- <img width="200" height="200" alt="f6917e0f742cab86b5fc96d509c89a7b" src="https://github.com/user-attachments/assets/9c17ef3b-f8e8-4ca2-9e02-70a3bdc30d2c" />
+ <img width="500" height="207" alt="d7d1ee4bc71ad346b91f2a639a03eaf6" src="https://github.com/user-attachments/assets/0ab0064e-afd1-4bef-924d-9fc4a6319579" />
+
 
 
 
@@ -18,7 +19,7 @@
 
 
 
-   $\color{lightpink}{\textbf{520}}$
+   $\color{red}{\textbf{520}}$
 
 
 
