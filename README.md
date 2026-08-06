@@ -50,5 +50,5 @@ $\text{\color{#656b75} more info on my strawpage}$
 <div align="center">
 
 
-
+My wonderful angels @Spr1ngB0nnie @AKAN3-31 @Rin he doesnt have github but love my hb 
 
