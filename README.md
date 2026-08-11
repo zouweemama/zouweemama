@@ -30,7 +30,7 @@ $\text{\color{#656b75} male (biologically) }$
 
 $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time}$\
-$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists}$\
+$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists, people who think that blackwashing doesn't exist}$\
 $\text{\color{#656b75} more info on my strawpage}$
 
 <img width="20" height="20" alt="IMG_1880" src="https://github.com/user-attachments/assets/4579f852-1ea7-4a42-b580-055838937066" />
