@@ -4,11 +4,9 @@
 <img width="37" height="20" alt="IMG_3717" src="https://github.com/user-attachments/assets/93f6fd03-0b4e-45c1-8655-79653a83d8f9" />
 
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
+
  
- <img width="500" height="207" alt="d7d1ee4bc71ad346b91f2a639a03eaf6" src="https://github.com/user-attachments/assets/0ab0064e-afd1-4bef-924d-9fc4a6319579" />
-
-
-
+<img width="960" height="540" alt="d74c7ba0f44bc2bb73fa36afee29cc1b" src="https://github.com/user-attachments/assets/dd299308-0f0c-4a98-9e49-494af729d634" />
 
 
 <div align="center">
@@ -20,19 +18,19 @@
 
 
 
-   $\color{red}{\textbf{520}}$
+   $\color{yellow}{\textbf{520}}$
 
 
 
 
 
-$\text{\color{#656b75} chinese brazilian}$\
+$\text{\color{#656b75} chinese/brazilian}$\
 $\text{\color{#656b75} lion dancer }$\
 $\text{\color{#656b75} male (biologically) }$
 
 $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time}$\
-$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, asianphobic ppl}$\
+$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists}$\
 $\text{\color{#656b75} more info on my strawpage}$
 
 <img width="20" height="20" alt="IMG_1880" src="https://github.com/user-attachments/assets/4579f852-1ea7-4a42-b580-055838937066" />
