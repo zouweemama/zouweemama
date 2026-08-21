@@ -6,7 +6,8 @@
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
 
  
-<img width="736" height="392" alt="image" src="https://github.com/user-attachments/assets/ecd1ed27-a2b5-4401-bdd7-48f87ab4a423" />
+<img width="1009" height="486" alt="Screenshot 2026-08-21 192233" src="https://github.com/user-attachments/assets/776b2107-836e-4d01-bcd5-fde27d837b6f" />
+
 
 
 
@@ -19,7 +20,7 @@
 
 
 
-   $\color{yellow}{\textbf{520}}$
+   $\color{red}{\textbf{520}}$
 
 
 
