@@ -6,7 +6,8 @@
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
 
  
-<img width="1009" height="486" alt="Screenshot 2026-08-21 192233" src="https://github.com/user-attachments/assets/776b2107-836e-4d01-bcd5-fde27d837b6f" />
+<img width="736" height="251" alt="Derpy broke your background! by AxemGR" src="https://github.com/user-attachments/assets/6e2be920-2afc-4624-a1f3-6fb96b52be9f" />
+
 
 
 
@@ -32,7 +33,7 @@ $\text{\color{#656b75} male (biologically) }$
 
 $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time}$\
-$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists, people who think that blackwashing doesn't exist}$\
+$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists, america supporters, bella delphine fandom, anything idiotic enough}$\
 $\text{\color{#656b75} more info on my strawpage}$
 
 <img width="20" height="20" alt="IMG_1880" src="https://github.com/user-attachments/assets/4579f852-1ea7-4a42-b580-055838937066" />
