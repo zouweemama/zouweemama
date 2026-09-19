@@ -6,9 +6,6 @@
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
 
 
-<img width="2381" height="2863" alt="8c27c3236b215d4a66c2e6eb2fc06a64" src="https://github.com/user-attachments/assets/d14df7de-ebe4-4c9f-a3d6-4c0083169cd9" />
-
-
 
 <div align="center">
 
@@ -25,7 +22,7 @@
 
 
 
-$\text{\color{#656b75} chinese/brazilian}$\
+$\text{\color{#656b75} chinese/brazilian/french}$\
 $\text{\color{#656b75} lion dancer }$\
 $\text{\color{#656b75} male (biologically) }$
 
