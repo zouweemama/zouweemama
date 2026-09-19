@@ -5,10 +5,8 @@
 
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
 
- 
-<img width="736" height="251" alt="Derpy broke your background! by AxemGR" src="https://github.com/user-attachments/assets/6e2be920-2afc-4624-a1f3-6fb96b52be9f" />
 
-
+<img width="2381" height="2863" alt="8c27c3236b215d4a66c2e6eb2fc06a64" src="https://github.com/user-attachments/assets/d14df7de-ebe4-4c9f-a3d6-4c0083169cd9" />
 
 
 
