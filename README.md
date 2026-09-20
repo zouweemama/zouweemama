@@ -12,7 +12,7 @@
 [Straw.](https://zouweemama.straw.page)   [Guns.](https://guns.lol/zou_dieyiyi) [新ㅤ.](https://zouweemama.atabook.org/)
 
 
-$\text{\color{#656b75} Don't forget to sign my ata n strawpage ! }$
+$\text{\color{#656b75}Don't forget to sign my ata n strawpage !}$
 
 
 
