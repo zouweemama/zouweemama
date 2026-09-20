@@ -2,8 +2,9 @@
 <div align="center">
 <img width="37" height="20" alt="IMG_3717" src="https://github.com/user-attachments/assets/93f6fd03-0b4e-45c1-8655-79653a83d8f9" />
 
-  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=zouweemama&label=ྀ࿔Angels) ໒꒱ ‧₊˚
+  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=your-zouweemama&label=Angels) ໒꒱ ‧₊˚
 
+<img width="486" height="46" alt="quarkiz regular" src="https://github.com/user-attachments/assets/c9c48917-518f-49f1-9cd5-e77fa12ee4e9" />
 
 
 <div align="center">
@@ -11,11 +12,12 @@
 [Straw.](https://zouweemama.straw.page)   [Guns.](https://guns.lol/zou_dieyiyi) [新ㅤ.](https://zouweemama.atabook.org/)
 
 
-  
+$\text{\color{#656b75} Don't forget to sign my ata & strawpage !! ^^ }$
 
 
 
-   $\color{red}{\textbf{520}}$
+   <img width="48" height="21" alt="quarkiz regular" src="https://github.com/user-attachments/assets/6e1c0e4a-9418-4ebd-9ae1-0cccf4e75c42" />
+
 
 
 
@@ -27,17 +29,18 @@ $\text{\color{#656b75} male (biologically) }$
 
 $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time}$\
-$\text{\color{#656b75} dni: pedos, darkshippers, zoophiles, racists, america supporters, bella delphine fandom, anything idiotic enough}$\
 $\text{\color{#656b75} more info on my strawpage}$
 
 <img width="20" height="20" alt="IMG_1880" src="https://github.com/user-attachments/assets/4579f852-1ea7-4a42-b580-055838937066" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zrunji4egigzf2nhpcn7eouunq&cover_image=true&theme=default&show_offline=false&background_color=ceecf3&interchange=false&profanity=false&hide_remaster=false&bar_color=a0bde4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<div align="center">
+<img width="115" height="26" alt="quarkiz regular" src="https://github.com/user-attachments/assets/c4a63dfa-ac27-40af-bdad-48dac1c4185b" />
+<div align="center">
+<img width="98" height="56" alt="tumblr_03bac7f763f90f909813b0ba77ac09e5_adfa5a99_100" src="https://github.com/user-attachments/assets/f6e28d8e-ee94-464a-ad15-573cda26649d" />
+<img width="99" height="56" alt="tumblr_7fe82b7d06a254d8056ac9dfdfa00132_34b0494c_100" src="https://github.com/user-attachments/assets/421be325-1602-4365-92f8-84e2888f5968" />
+<img width="99" height="56" alt="tumblr_22e74ca1816054799e9ed4b49a2fe247_7f265c22_100" src="https://github.com/user-attachments/assets/d50c299f-a1bf-4555-8165-aeadaf5771bd" />
+<img width="99" height="56" alt="tumblr_cb2338fbd0ea183adaeb3bb002f9563a_67cfbc58_100" src="https://github.com/user-attachments/assets/3528870a-96e5-4372-a3cd-d84f1951c05a" />
+<img width="99" height="56" alt="tumblr_8f3aed869e87747e90f768681319c679_7de2e924_100" src="https://github.com/user-attachments/assets/107d13f6-e83f-4017-ab1e-fab1234075ae" />
+<img width="98" height="56" alt="tumblr_3a39cffa30d65debc48d6b8e536819fe_551cf7c0_100" src="https://github.com/user-attachments/assets/4a643c22-8649-41cf-a7a5-27078e8a6c81" />
 
-<img width="20" height="20" alt="IMG_1877" src="https://github.com/user-attachments/assets/27b39d59-3c71-41cc-9510-c0825abe6721" />
-<img width="99" height="56" alt="tumblr_12fb042c33e0525b4ca0d37b8d0a84e0_4d538ca5_100" src="https://github.com/user-attachments/assets/f7aabd36-a9b2-4cf1-992a-79ff8694c069" />
-<img width="99" height="56" alt="tumblr_bbe21b589cd9c2e08ea30302665fca80_d87b74d5_100" src="https://github.com/user-attachments/assets/a5ba7247-a654-4a7e-80bf-370609f1ce61" />
-<img width="99" height="56" alt="tumblr_49d942d916bd0deed7a5ed1a7b4fe1d9_f2fc5bfe_100" src="https://github.com/user-attachments/assets/2a7b1957-bd95-450b-b39e-9e59a4206312" />
-<img width="99" height="56" alt="tumblr_38441dd588e4ced837c56e592b179792_76fd6a23_100" src="https://github.com/user-attachments/assets/b840067c-943f-4120-a401-3d20f3c6d295" />
-<img width="100" height="57" alt="tumblr_1030d0c10375fe5c7f5acb9c71ea27ba_127aeb32_100" src="https://github.com/user-attachments/assets/4ca05721-9b1d-47e1-8d53-b676bb99bdf4" />
-<img width="99" height="56" alt="tumblr_1f05704d0bb02629e4f0c9d2956d3f07_de965c37_100" src="https://github.com/user-attachments/assets/6344e2fe-0280-4d9b-b18e-70e06a034748" />
