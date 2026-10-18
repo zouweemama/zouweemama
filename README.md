@@ -23,7 +23,7 @@ $\text{\color{#656b75}Don't forget to sign my ata n strawpage !}$
 
 
 
-$\text{\color{#656b75} chinese/brazilian/french}$\
+$\text{\color{#656b75} chinese/german/french}$\
 $\text{\color{#656b75} lion dancer }$\
 $\text{\color{#656b75} male (biologically) }$
 
