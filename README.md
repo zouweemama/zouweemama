@@ -5,6 +5,9 @@
 
 SPRINGBOKS FOR LIFE
 
+<img width="220" height="167" alt="image" src="https://github.com/user-attachments/assets/b180b4f9-2d97-4da4-9864-b3d236432994" />
+
+
 
 <div align="center">
 
