@@ -1,7 +1,7 @@
 
 <div align="center">
 
-  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=your-zouweemama&label=Angels) ໒꒱ ‧₊˚
+  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=your-zouweemama&label=Bucks) ໒꒱ ‧₊˚
 
 SPRINGBOKS FOR LIFE
 
