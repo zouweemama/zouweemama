@@ -1,10 +1,9 @@
 
 <div align="center">
-<img width="37" height="20" alt="IMG_3717" src="https://github.com/user-attachments/assets/93f6fd03-0b4e-45c1-8655-79653a83d8f9" />
 
   ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=your-zouweemama&label=Angels) ໒꒱ ‧₊˚
 
-<img width="486" height="46" alt="quarkiz regular" src="https://github.com/user-attachments/assets/c9c48917-518f-49f1-9cd5-e77fa12ee4e9" />
+SPRINGBOKS FOR LIFE
 
 
 <div align="center">
@@ -23,8 +22,8 @@ $\text{\color{#656b75}Don't forget to sign my ata n strawpage !}$
 
 
 
-$\text{\color{#656b75} chinese/german/french}$\
-$\text{\color{#656b75} lion dancer }$\
+$\text{\color{#656b75} german/french}$\
+$\text{\color{#656b75} lion dancer, rugby player }$\
 $\text{\color{#656b75} male (biologically) }$
 
 $\text{\color{#656b75} c+h friendly}$\
