@@ -1,48 +1,34 @@
-
-<div align="center">
-
-  ˚₊‧꒰ა  ![](https://komarev.com/ghpvc/?username=your-zouweemama&label=Bucks) ໒꒱ ‧₊˚
-
-SPRINGBOKS FOR LIFE
-
-<img width="220" height="167" alt="image" src="https://github.com/user-attachments/assets/b180b4f9-2d97-4da4-9864-b3d236432994" />
+<p align="center">
+  <img width="736" height="339" alt="03fcc2e925807c814bab1395b12cbf1a-removebg-preview" src="https://github.com/user-attachments/assets/5c934b7c-eaae-4b3b-a21c-d7a4227174d7" />
 
 
+<table>
+  <tr>
+    <td width="55%" align="center" valign="top">
+      <img width="446" height="559" alt="1fbbe571fe12e83cf9d681a9d85ce484-removebg-preview" src="https://github.com/user-attachments/assets/58b12ecf-3b9f-41e4-9c0a-a7fa818334e3" />
+    </td>
+    <td width="60%" align="left" valign="top">
 
-<div align="center">
-
-[Straw.](https://zouweemama.straw.page)   [Guns.](https://guns.lol/zou_dieyiyi) [新ㅤ.](https://zouweemama.atabook.org/)
-
-
-$\text{\color{#656b75}Don't forget to sign my ata n strawpage !}$
-
-
-
-   <img width="48" height="21" alt="quarkiz regular" src="https://github.com/user-attachments/assets/6e1c0e4a-9418-4ebd-9ae1-0cccf4e75c42" />
+<img width="643" height="388" alt="99f412b89899edf56a36ba7e24e82e7a-removebg-preview" src="https://github.com/user-attachments/assets/8e12cc91-9a8c-4045-ae8e-7b3ff042adcc" />
 
 
+ ⚜. Stra[w](https://zouweemama.straw.page)
 
+⠀🗡. Gun[s](https://guns.lol/deerfull)
 
+⠀🜋. Spotif[y](https://open.spotify.com/user/31zrunji4egigzf2nhpcn7eouunq?si=a0288d9d980c4c90)
 
+⠀⛨. Discor[d](https://discord.com/users/1248835010488959028)
+⠀
 
-$\text{\color{#656b75} german/french}$\
-$\text{\color{#656b75} lion dancer, rugby player }$\
-$\text{\color{#656b75} male (biologically) }$
+➳. Ataboo[k](https://zouweemama.atabook.org/)
 
-$\text{\color{#656b75} c+h friendly}$\
-$\text{\color{#656b75} offtab most of the time}$\
-$\text{\color{#656b75} more info on my strawpage}$
-
-<img width="20" height="20" alt="IMG_1880" src="https://github.com/user-attachments/assets/4579f852-1ea7-4a42-b580-055838937066" />
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zrunji4egigzf2nhpcn7eouunq&cover_image=true&theme=default&show_offline=false&background_color=ceecf3&interchange=false&profanity=false&hide_remaster=false&bar_color=a0bde4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-<div align="center">
-<img width="115" height="26" alt="quarkiz regular" src="https://github.com/user-attachments/assets/c4a63dfa-ac27-40af-bdad-48dac1c4185b" />
-<div align="center">
-<img width="98" height="56" alt="tumblr_03bac7f763f90f909813b0ba77ac09e5_adfa5a99_100" src="https://github.com/user-attachments/assets/f6e28d8e-ee94-464a-ad15-573cda26649d" />
-<img width="99" height="56" alt="tumblr_7fe82b7d06a254d8056ac9dfdfa00132_34b0494c_100" src="https://github.com/user-attachments/assets/421be325-1602-4365-92f8-84e2888f5968" />
 <img width="99" height="56" alt="tumblr_22e74ca1816054799e9ed4b49a2fe247_7f265c22_100" src="https://github.com/user-attachments/assets/d50c299f-a1bf-4555-8165-aeadaf5771bd" />
-<img width="99" height="56" alt="tumblr_cb2338fbd0ea183adaeb3bb002f9563a_67cfbc58_100" src="https://github.com/user-attachments/assets/3528870a-96e5-4372-a3cd-d84f1951c05a" />
+  <img width="99" height="56" alt="tumblr_cb2338fbd0ea183adaeb3bb002f9563a_67cfbc58_100" src="https://github.com/user-attachments/assets/3528870a-96e5-4372-a3cd-d84f1951c05a" />
 <img width="99" height="56" alt="tumblr_8f3aed869e87747e90f768681319c679_7de2e924_100" src="https://github.com/user-attachments/assets/107d13f6-e83f-4017-ab1e-fab1234075ae" />
 <img width="98" height="56" alt="tumblr_3a39cffa30d65debc48d6b8e536819fe_551cf7c0_100" src="https://github.com/user-attachments/assets/4a643c22-8649-41cf-a7a5-27078e8a6c81" />
+</details>
+  </tr>
+</table>
+
 
